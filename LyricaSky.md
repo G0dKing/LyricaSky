@@ -1,4 +1,4 @@
-![](LyricaSky-PromoPic-1.jpg)
+![](/media/pics/ls-pic-1.jpg)
 
 ###### Basic Info
 Age: 24
